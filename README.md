@@ -1,2 +1,3 @@
-# DeWereldRond
-'De Wereld Rong' is my fifth music CD 
+# De Wereld Rond
+
+'De Wereld Rond' is Richel Bilderbeek's fifth music CD.
